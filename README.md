@@ -2,5 +2,5 @@
 
 Hi Humans!
 
-I really like Assassin's Creed very much
-I want to work with Ubisoft company very much
+I am assassin who want to forget the past about myself
+I need to rescue my lover from mystery organization
